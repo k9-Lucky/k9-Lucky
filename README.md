@@ -4,7 +4,6 @@
 Email Me 👉 ✉️ **luckymungeri@gmail.com**. 😊😊
 
 - 🌱 **I’m currently learning:** About accessing any Network
-- 🤔 **I’m looking for help with:** Your project here
 - 📫 **How to reach me:** luckymungeri@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
